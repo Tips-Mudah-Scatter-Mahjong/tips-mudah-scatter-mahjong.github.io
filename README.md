@@ -1,0 +1,1 @@
+# tips-mudah-scatter-mahjong.github.io
